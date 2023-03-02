@@ -64,9 +64,9 @@ Video: https://www.youtube.com/watch?v=2Il6QD3sHqQ
 Video: https://www.youtube.com/watch?v=QKxeOsGMTBI
 <br>
 
-# [- # QuadraX ⌞DT 3.0⌝](https://quadrax.s-ul.eu/Jo8YCXqp)
-![](https://i.imgur.com/XC0rF2K.png)
-Video: https://www.youtube.com/watch?v=mbm3rmAKMfA
+# [- # QuadraX ⌞DT 3.0⌝](https://quadrax.s-ul.eu/2JXb1Etl)
+![](https://i.imgur.com/s8rnPp4.png)
+Video: https://www.youtube.com/watch?v=JjopRhD8kDs&ab_channel=ChineseCaillou
 <br>
 
 # [- # QuadraX ⌞EZ⌝](https://quadrax.s-ul.eu/msidDx9V)
